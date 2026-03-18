@@ -1,2 +1,2 @@
 # Podcast
-Synomocoriousness hellness and to go for happyness.
+Synomocoriousness hail and to go for happyness.
